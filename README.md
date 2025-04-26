@@ -1,1 +1,1 @@
-ÿþ
+#PoC Lambda ASQ Capital
